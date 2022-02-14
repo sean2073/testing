@@ -1,0 +1,1 @@
+Carson won the new HOH.
